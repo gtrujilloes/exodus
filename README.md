@@ -1,2 +1,2 @@
 # exodus
-How much ready are you municipalities to welcome us?
+How prepared are the municipalities of Spain to receive us?
